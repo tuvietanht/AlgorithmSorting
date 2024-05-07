@@ -1,1 +1,1 @@
-![Video_2024-05-08_010754](https://github.com/tuvietanht/AlgorithmSorting/assets/101501013/0d2dca27-c895-4dbd-b570-c9770adade87)
+![Video_2024-05-08_011917](https://github.com/tuvietanht/AlgorithmSorting/assets/101501013/9c95cd1e-edfc-4904-a625-04e8771def61)
